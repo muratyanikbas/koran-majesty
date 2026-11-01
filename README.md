@@ -1,1 +1,1 @@
-# Koran Majesty
+# The Koran: Majestic Translation and Explanation
